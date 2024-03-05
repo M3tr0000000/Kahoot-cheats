@@ -1,4 +1,4 @@
-First you copy the cod
+First you copy the code
 Secound you bookmark this page
 Third you edit the booketmark and past the code in the url
 Fourth you go in a game and click the bookmark
